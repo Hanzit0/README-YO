@@ -5,7 +5,7 @@
      ⢣⡀⠀⠉⠲⢤⣀⡀⠀⠀⠀⠀⠀⠀⢀⣀⡤⠖⠉⠀⢀⡜
       ⢸⡉⠒⠄⠀⠀⠀⢉⡙⢢⠀⠀⡔⢋⡉⠀⠀⠀⠠⠒⢉⡇
       ⠀⠉⢖⠒⠀⠀⠀⣇⠀⣸⠀⠀⣇⠀⣸⠀⠀⠀⠒⡲⠉⠀
-    ⠀ ⠀⠀⠉⠙⠫⠤⠚⠉⠀⠀⠀⠀⠉⠓⠤⠝⠋⠉          𓏵‧₊˚ ┊  . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.  . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.  . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.  ݁
+    ⠀ ⠀⠀⠉⠙⠫⠤⠚⠉⠀⠀⠀⠀⠉⠓⠤⠝⠋⠉          𓏵‧₊˚ ┊  . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.  . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.  . ݁₊ ⊹ . ݁ ⟡ ݁ . ݁
 
 ⋆˚꩜｡  im alejandro, im a big cowboy bebop fan along with jujutsu kaisen. Im 17 and i like drawing too. I dont usually talk/interact in pony town, yet i like seeing peoples ponies.
 
