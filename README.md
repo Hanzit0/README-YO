@@ -10,4 +10,7 @@
 ⋆˚꩜｡  im alejandro, im a big cowboy bebop fan along with jujutsu kaisen. Im 17 and i like drawing too. I dont usually talk/interact in pony town, yet i like seeing peoples ponies.
 
                                                   ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
-ok ill continyue this later, check my links
+Im often afk in spawn, off tab.
+I try check once in a while, so it'd
+be better for u to whisper.                         
+
